@@ -60,4 +60,8 @@ through from loneliness.
 - Organizing 550+ entries, allocating 300+ entries to their best committees, designing study guides and allocation pdfs.
 Allocating 300+ delegates ensuring everyone who participated would leave with the best ever experience, ensuring everything was perfect for each and every delegate and answered each and every query from concerned parents, delegates, and executive board members working till the last minute.
 
+## Contact me:
+Gmail: anayetrafat@gmail.com
+[Linkedin](https://www.linkedin.com/in/anayet-hossain-80a4b9294/)
+Bangladesh, Dhaka-1230
 

@@ -3,8 +3,8 @@
 #### Technical Sills: Graphics Design, Project Management
 
 ## Education
--A levels, Mixed | Bangladesh International Tutorial (_2022 - 2024_) 
--O levels, Mixed | Bangladesh International Tutorial (_2022_)
+- A levels, Mixed | Bangladesh International Tutorial (_2022 - 2024_) 
+- O levels, Mixed | Bangladesh International Tutorial (_2022_)
 
 ## Work Experience
 **Graphics Designer @ Uttara Tutorial (_Jan 2024 - Present_)**

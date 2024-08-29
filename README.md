@@ -1,6 +1,6 @@
 # Personal Portfolio
 
-#### Technical Sills: Graphics Design, Project Management
+#### Technical Skills: Graphics Design, Project Management, Teamwork
 
 ## Education
 - A levels, Mixed | Bangladesh International Tutorial (_2022 - 2024_) 

@@ -53,4 +53,10 @@ esteem as well as communities and also a minor move
 through from loneliness.
 
 ## Projects
+**BITMUN 2023 | Director of Delegate Affairs Department (_2022 - 2023_)**
+- Organizing 550+ entries, allocating 300+ entries to their best committees, designing study guides and allocation pdfs.
+Allocating 300+ delegates ensuring everyone who participated would leave with the best ever experience, ensuring everything was perfect for each and every delegate and answered each and every query from concerned parents, delegates, and executive board members working till the last minute.
+
+**BIFT 2023 | Organizing Board (twice in a single year) (_2023_)**
+- Hosted and helped raised fund of 40,000+ through direct communication with sponsors. Helped doing graphics design of certain event products; volunteer t-shirts, social media posts and social media video edits.
 

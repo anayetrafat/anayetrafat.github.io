@@ -77,7 +77,7 @@ Allocating 300+ delegates ensuring everyone who participated would leave with th
 **Best Student Award @ The Great Wall Academy (_2016_)**
 - Awarded to the highest scorer in the final exam of the course of French Language.
 
-## Contact me:
+## Contact Information:
 - anayetrafat@gmail.com
 - [Linkedin](https://www.linkedin.com/in/anayet-hossain-80a4b9294/)
 - Bangladesh, Dhaka-1230

@@ -66,13 +66,13 @@ Allocating 300+ delegates ensuring everyone who participated would leave with th
 
 **Gold Award Recipient- The Duke of Edinburgh’s International Award (_2022_)**
 
-**Best Campus Ambassador @ ANMUN Nepal (_2020_)**
-- One of the two best and the youngest campus ambassador to take part in the model UN conference. Selected between people from all around South-East Asia.
-
 **Outstanding Delegate Award @ RMUN Nepal (_2020_)**
 - One of the youngest winners, competing against people from all around South-East Asian countries such as India, Nepal, Bhutan and Bangladesh.
 
-**BD Math Olympiad Regional Round Winner (_2020_)**
+**Best Campus Ambassador @ ANMUN Nepal (_2020_)**
+- One of the two best and the youngest campus ambassador to take part in the model UN conference. Selected between people from all around South-East Asia.
+
+**Special Mention @ ANMUN Nepal (_2020_)**
 
 **Best Student Award @ The Great Wall Academy (_2016_)**
 - Awarded to the highest scorer in the final exam of the course of French Language.

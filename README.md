@@ -60,6 +60,23 @@ through from loneliness.
 - Organizing 550+ entries, allocating 300+ entries to their best committees, designing study guides and allocation pdfs.
 Allocating 300+ delegates ensuring everyone who participated would leave with the best ever experience, ensuring everything was perfect for each and every delegate and answered each and every query from concerned parents, delegates, and executive board members working till the last minute.
 
+## Achievements
+**Bangladesh International Tutorial Merit Based Scholarship (_2022 - 2024_)**
+- Covered 40% of school fees for the entire two years of the International A-Level course; awarded to IGCSE high achievers.
+
+**Best Campus Ambassador @ ANMUN Nepal (_2020_)**
+- One of the two best and the youngest campus ambassador to take part in the model UN conference. Selected between people from all around South-East Asia.
+
+**Outstanding Delegate Award @ RMUN Nepal (_2020_)**
+- One of the youngest winners, competing against people from all around South-East Asian countries such as India, Nepal, Bhutan and Bangladesh.
+
+**Gold Award Recipient- The Duke of Edinburgh’s International Award (_2022_)**
+
+**BD Math Olympiad Regional Round Winner (_2021_)**
+
+**Best Student Award @ The Great Wall Academy (_2016_)**
+- Awarded to the highest scorer in the final exam of the course of French Language.
+
 ## Contact me:
 - anayetrafat@gmail.com
 - [Linkedin](https://www.linkedin.com/in/anayet-hossain-80a4b9294/)

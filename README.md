@@ -1,8 +1,10 @@
 # Personal Portfolio
 
 ### Education
-A levels, BIT 2022-2024
-O levels, BIT 2022
+A levels 
+- BIT 2022-2024
+O levels 
+- BIT 2022
 
 ### Work Experience
 Graphics Designer @ Uttara Tutorial

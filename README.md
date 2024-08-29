@@ -6,9 +6,9 @@ O levels, BIT 2022
 
 ### Work Experience
 Graphics Designer @ Uttara Tutorial
--Demonstrated expertise in Photoshop and Illustrator to create
+- Demonstrated expertise in Photoshop and Illustrator to create
 innovative, original graphics.
--Revised designs based on feedback, demonstrating flexibility
+- Revised designs based on feedback, demonstrating flexibility
 and commitment to client satisfaction.
 
 ### Projects

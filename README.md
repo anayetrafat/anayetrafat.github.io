@@ -79,8 +79,8 @@ Allocating 300+ delegates ensuring everyone who participated would leave with th
 
 ## Reference:
 Engr. Dr. MD. Ahadullah
-Assistant Professor, Northern University Bangladesh
-email: md.ahad.labu@gmail.com
+- Assistant Professor, Northern University Bangladesh
+- email: md.ahad.labu@gmail.com
 
 ## Contact Information:
 - anayetrafat@gmail.com

@@ -61,7 +61,7 @@ through from loneliness.
 Allocating 300+ delegates ensuring everyone who participated would leave with the best ever experience, ensuring everything was perfect for each and every delegate and answered each and every query from concerned parents, delegates, and executive board members working till the last minute.
 
 ## Achievements
-**Star Achiever Award @ ISKA (_2024_)
+**Star Achiever Award @ ISKA (_2024_)**
 - STAR ACHIEVER Title by the International Star Kids Awards™ 2024.
 
 **Bangladesh International Tutorial Merit Based Scholarship (_2022 - 2024_)**
